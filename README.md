@@ -1,2 +1,2 @@
 # Power__PointPresentations
-In this you get Diploma computer engineer `s subject `s topics....
+You can find topics of diploma computer engineers to this.
